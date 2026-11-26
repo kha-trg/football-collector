@@ -1,4 +1,4 @@
-Ngày chạy thực tế: 25/11/2026 | Khung: 09:00 25/11 → 09:00 26/11 (giờ VN)
+Ngày chạy thực tế: 26/11/2026 | Khung: 09:00 26/11 → 09:00 27/11 (giờ VN)
 
 
 (<4 trận — Boss nhắn thẳng tên trận nếu cần phân tích)
